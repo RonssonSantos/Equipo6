@@ -1,10 +1,1 @@
-holadddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddd
-dddddddddddd
-d
-d
-d
-d
-d
-d
-d
+https://github.com/RonssonSantos/Equipo6.git
