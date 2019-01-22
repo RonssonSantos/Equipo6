@@ -1,1 +1,1 @@
-https://github.com/RonssonSantos/Equipo6.git
+si funciona ersta mierda
